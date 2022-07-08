@@ -14,9 +14,11 @@ Je suis vincent :tada:
 Je suis Ricardo Tanturi
 la casa en que nací,
 la reja y el parral,
+Grosse connerie
 la vieja calesita y el rosal.
 Su acento es la canción de voz sentimental,
 su ritmo es el compás que vive en mi ciudad,
+pas grosse connerie
 no tiene pretensión,
 no quiere ser procaz,
 se llama tango y nada más.
