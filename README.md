@@ -35,3 +35,6 @@ su ritmo es el compás que vive en mi ciudad,
 no tiene pretensión,
 no quiere ser procaz,
 se llama tango y nada más
+
+
+<img src="bg.JPG">
