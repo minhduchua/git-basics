@@ -9,9 +9,10 @@ que es cada vez más dulce y seductor.
 Envuelto en la ilusión anoche lo escuché,
 compuesta la emoción por cosas de mi ayer,
 Hello
-Je suis vincent :tada: 
+Je suis vincent :tada:
 la casa en que nací,
 la reja y el parral,
+Grosse connerie
 la vieja calesita y el rosal.
 Su acento es la canción de voz sentimental,
 su ritmo es el compás que vive en mi ciudad,
@@ -36,6 +37,5 @@ su ritmo es el compás que vive en mi ciudad,
 no tiene pretensión,
 no quiere ser procaz,
 se llama tango y nada más
-
 
 <img src="bg.JPG">
